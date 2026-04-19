@@ -2,9 +2,9 @@
 
   ![](https://komarev.com/ghpvc/?username=puptrickz&color=46325c&label=kills)
 
-  <img width="650" height="80" alt="Untitled124_20260419162923" src="https://github.com/user-attachments/assets/57f6247c-6ecd-4959-ba91-f66164b7b0f9" />
+<img width="736" height="80" alt="Untitled124_20260419162923" src="https://github.com/user-attachments/assets/5cf28270-2a61-4d31-8bc7-5758183b7b2f" />
 
+<img width="764" height="653" alt="Untitled127_20260419165545" src="https://github.com/user-attachments/assets/36e44782-b3da-40d9-9b94-d96f543272fe" />
 
-<img width="650" height="750" alt="Untitled124_20260419153004" src="https://github.com/user-attachments/assets/54f5a37d-cfc2-47fa-b020-02f5b9811af7" style="border: none;" />
 
 </div>
