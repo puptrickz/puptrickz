@@ -6,11 +6,20 @@
 <img width="450" height="80" alt="Untitled124_20260419162923" src="https://github.com/user-attachments/assets/5cf28270-2a61-4d31-8bc7-5758183b7b2f" />
 
 <img width="450" height="400" alt="Untitled127_20260419165545" src="https://github.com/user-attachments/assets/36e44782-b3da-40d9-9b94-d96f543272fe" />
-ㅤㅤ﹒ㅤㅤelliot   ㅤㅤ    .  ㅤㅤ  randy   ㅤㅤ   . ㅤㅤ  patrick ㅤㅤ  𓏫 ⠀ 
+ㅤㅤ﹒ㅤㅤ <ins>elliot</ins>   ㅤㅤ    .  ㅤㅤ  randy   ㅤㅤ   . ㅤㅤ  patrick ㅤㅤ  𓏫 ⠀ 
 
  
- ꒰ㅤ, ㅤamber ㅤㅤ  freeman ㅤㅤ  kinㅤㅤ𓋫 ㅤintp ㅤㅤ      ꒱
+ ꒰ㅤ, ㅤamber ㅤㅤ  _freeman_ ㅤㅤ  ㅤ<ins>kin</ins> ㅤ𓋫 ㅤintp ㅤㅤ      ꒱
  
- .  ㅤ♡︎　　⋮　ㅤㅤhe  　ㅤ﹕ ㅤㅤshe ㅤ﹕ ㅤㅤtheyㅤㅤ  ( ˘͈ ᵕ ˘͈♡)  .   
+ .  ㅤ♡︎　　⋮　ㅤㅤ<ins>he</ins> 　ㅤ﹕ ㅤㅤshe ㅤ﹕ ㅤㅤtheyㅤㅤ  ( ˘͈ ᵕ ˘͈♡)  . 
 
+ ᡕᠵデᡁ᠊╾━
+
+ ၄၃𓏻　c + h ㅤ.  ㅤint ㅤㅤ<ins>freely</ins> ㅤ𓂃　ㅤ dnc ㅤponies　ㅤㅤ ੭　　　
+
+ .　ʚ ɞ 　dni ㅤㅤ:    tcc ㅤ.ㅤ toxic ㅤㅤ people　ㅤㅤ 　˘　　　　　　⥰
+
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31gp774jcfsss6rfosti47ts25na&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=784c85&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 </div>
