@@ -6,6 +6,9 @@
 <img width="450" height="50" alt="Untitled124_20260419162923" src="https://github.com/user-attachments/assets/5cf28270-2a61-4d31-8bc7-5758183b7b2f" />
 
 <img width="450" height="400" alt="Untitled127_20260419165545" src="https://github.com/user-attachments/assets/36e44782-b3da-40d9-9b94-d96f543272fe" />
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=664885&center=true&width=435&lines=%22+Welcome+to+act+three.+%22" alt="Typing SVG" /></a>
+
 ㅤㅤ﹒ㅤㅤ <ins>elliot</ins>   ㅤㅤ    .  ㅤㅤ  randy   ㅤㅤ   . ㅤㅤ  patrick ㅤㅤ  𓏫 ⠀ 
 
  
