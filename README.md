@@ -1,5 +1,6 @@
 <div align="center">
 
+  ![](https://komarev.com/ghpvc/?username=puptrickz&color=46325c&label=kills)
 
 
 <img width="650" height="80" alt="Untitled124_20260419162923" src="https://github.com/user-attachments/assets/5cf28270-2a61-4d31-8bc7-5758183b7b2f" />
