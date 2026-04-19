@@ -1,6 +1,7 @@
 <div align="center">
 
-<img width="736" height="80" alt="Untitled124_20260419162927" src="https://github.com/user-attachments/assets/efb76475-f2fb-416d-ad59-0295e23b357e" style="border: none;" />
+<img width="680" height="80" alt="Untitled124_20260419162923" src="https://github.com/user-attachments/assets/57f6247c-6ecd-4959-ba91-f66164b7b0f9" />
+
 
 
 ![](https://komarev.com/ghpvc/?username=puptrickz&color=46325c&label=kills)
