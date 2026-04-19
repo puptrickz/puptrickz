@@ -17,7 +17,7 @@
 
  ၄၃𓏻　c + h ㅤ.  ㅤint ㅤㅤ<ins>freely</ins> ㅤ𓂃　ㅤ dnc ㅤponies　ㅤㅤ ੭　　　
 
- .　ʚ ɞ 　dni ㅤㅤ:    tcc ㅤ.ㅤ toxic ㅤㅤ people　ㅤㅤ 　˘　　　　　　⥰
+ .　ʚ ɞ 　dni ㅤㅤ:    tcc ㅤ.ㅤ toxic ㅤㅤ people　ㅤㅤ 　˘　　　　𝄢
 
 
 
