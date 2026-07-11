@@ -9,7 +9,7 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=664885&center=true&width=435&lines=%22+Welcome+to+act+three.+%22" alt="Typing SVG" /></a>
 
-ㅤㅤ﹒ㅤㅤ <ins>elliot</ins>   ㅤㅤ    .  ㅤㅤ  randy   ㅤㅤ   . ㅤㅤ  patrick ㅤㅤ  𓏫 ⠀ 
+ㅤㅤ﹒ㅤㅤ <ins>elliot</ins>   ㅤㅤ    .  ㅤㅤ  randy   ㅤㅤ   . ㅤㅤ  jimmy ㅤㅤ  𓏫 ⠀ 
 
  
  ꒰ㅤ, ㅤamber ㅤㅤ  _freeman_ ㅤㅤ﹕ jimmy  ㅤㅤ hopkins ㅤ<ins>kin</ins> ㅤ𓋫 ㅤintp ㅤㅤ      ꒱
