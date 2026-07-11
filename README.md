@@ -12,9 +12,9 @@
 ㅤㅤ﹒ㅤㅤ <ins>elliot</ins>   ㅤㅤ    .  ㅤㅤ  randy   ㅤㅤ   . ㅤㅤ  patrick ㅤㅤ  𓏫 ⠀ 
 
  
- ꒰ㅤ, ㅤamber ㅤㅤ  _freeman_ ㅤㅤ﹕ randy  ㅤㅤmeeks  ㅤ<ins>kin</ins> ㅤ𓋫 ㅤintp ㅤㅤ      ꒱
+ ꒰ㅤ, ㅤamber ㅤㅤ  _freeman_ ㅤㅤ﹕ jimmy  ㅤㅤ hopkins ㅤ<ins>kin</ins> ㅤ𓋫 ㅤintp ㅤㅤ      ꒱
  
- .  ㅤ♡︎　　⋮　ㅤㅤ<ins>he</ins> 　ㅤ﹕ ㅤㅤshe ㅤ﹕ ㅤㅤtheyㅤㅤ  ( ˘͈ ᵕ ˘͈♡)  . 
+ .  ㅤ♡︎　　⋮　ㅤㅤ<ins>she</ins> 　ㅤ ㅤ﹕ ㅤㅤtheyㅤㅤ  ( ˘͈ ᵕ ˘͈♡)  . 
 
  ᡕᠵデᡁ᠊╾━
 
