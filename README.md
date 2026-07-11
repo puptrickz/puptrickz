@@ -3,11 +3,10 @@
   ![](https://komarev.com/ghpvc/?username=puptrickz&color=46325c&label=kills)
 
 
-<img width="450" height="50" alt="Untitled124_20260419162923" src="https://github.com/user-attachments/assets/5cf28270-2a61-4d31-8bc7-5758183b7b2f" />
+<img width="480" height="440" alt="tumblr_2ef6eda4e89dc34962f69233504a0cff_c58853fb_1280-ezgif com-crop" src="https://github.com/user-attachments/assets/2cb5b4a6-5a3b-4a55-b64b-22698cc5cf40" />
 
-<img width="450" height="400" alt="Untitled127_20260419165545" src="https://github.com/user-attachments/assets/36e44782-b3da-40d9-9b94-d96f543272fe" />
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=664885&center=true&width=435&lines=%22+Welcome+to+act+three.+%22" alt="Typing SVG" /></a>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=856B9C&center=true&width=435&height=53&lines=%22+Why'd+you+do+it%2C+Gary%3F+%22)](https://git.io/typing-svg)
 
 ㅤㅤ﹒ㅤㅤ <ins>elliot</ins>   ㅤㅤ    .  ㅤㅤ  randy   ㅤㅤ   . ㅤㅤ  jimmy ㅤㅤ  𓏫 ⠀ 
 
