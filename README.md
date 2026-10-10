@@ -21,7 +21,7 @@
 
  .　ʚ ɞ 　dni ㅤㅤ:    tcc ㅤ.ㅤ toxic ㅤㅤ people　ㅤㅤ 　˘　　　　𝄢
 
-  ꒰ㅤ, ㅤ﹕ jimpete     ㅤㅤ      +      ㅤㅤ      smopkins     ㅤㅤ     enthusiast    ㅤ𓋫 ㅤ ㅤㅤ    ꒱
+  ꒰ㅤ, ㅤ﹕ jimpete     ㅤㅤ      +      ㅤㅤ      smopkins     ㅤㅤ     enthusiast    ㅤ𓋫 ㅤ my     ㅤluuv    ㅤ/     ㅤveronica    ㅤ:     ㅤkatewoonㅤㅤ    ꒱
 
 
 
