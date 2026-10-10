@@ -8,18 +8,20 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=856B9C&center=true&width=435&height=53&lines=%22+Why'd+you+do+it%2C+Gary%3F+%22)](https://git.io/typing-svg)
 
-ㅤㅤ﹒ㅤㅤ <ins>elliot</ins>   ㅤㅤ    .  ㅤㅤ  randy   ㅤㅤ   . ㅤㅤ  jimmy ㅤㅤ  𓏫 ⠀ 
+ㅤㅤ﹒ㅤㅤ <ins>elliot</ins>   ㅤㅤ    .  ㅤㅤ  erin   ㅤㅤ   . ㅤㅤ  jimmy ㅤㅤ  𓏫 ⠀ 
 
  
- ꒰ㅤ, ㅤamber ㅤㅤ  _freeman_ ㅤㅤ﹕ jimmy  ㅤㅤ hopkins ㅤ<ins>kin</ins> ㅤ𓋫 ㅤintp ㅤㅤ      ꒱
+ ꒰ㅤ, ㅤ﹕ _jimmy_  ㅤㅤ hopkins ㅤ<ins>kin</ins> ㅤ𓋫 ㅤintp ㅤㅤ      ꒱
  
  .  ㅤ♡︎　　⋮　ㅤㅤ<ins>she</ins> 　ㅤ ㅤ﹕ ㅤㅤtheyㅤㅤ  ( ˘͈ ᵕ ˘͈♡)  . 
 
  ᡕᠵデᡁ᠊╾━
 
- ၄၃𓏻　c + h ㅤ.  ㅤint ㅤㅤ<ins>freely</ins> ㅤ𓂃　ㅤ dnc ㅤponies　ㅤㅤ ੭　　　
+ ၄၃𓏻　c + h     ㅤat    ㅤㅤall      ㅤㅤtimesㅤ.  ㅤint ㅤㅤ<ins>freely</ins> ㅤ𓂃　ㅤ dnc ㅤponies　ㅤㅤ ੭　　　
 
  .　ʚ ɞ 　dni ㅤㅤ:    tcc ㅤ.ㅤ toxic ㅤㅤ people　ㅤㅤ 　˘　　　　𝄢
+
+  ꒰ㅤ, ㅤ﹕ jimpete     ㅤㅤ      +      ㅤㅤ      smopkins     ㅤㅤ     enthusiast    ㅤ𓋫 ㅤ ㅤㅤ    ꒱
 
 
 
