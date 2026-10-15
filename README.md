@@ -1,9 +1,10 @@
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=puptrickz&color=46325c&label=beaten)
+  ![](https://komarev.com/ghpvc/?username=puptrickz&color=46325c&label=beaten_up)
 
 
-<img width="500" height="550" alt="Untitled228_20261015171725" src="https://github.com/user-attachments/assets/ae7d24f4-8e10-447b-8035-b7d97057b8d5" />
+
+<img width="500" height="540" alt="Untitled228_20261015172013" src="https://github.com/user-attachments/assets/b8439f8e-69d4-4eb4-a3c5-55aea6c66023" />
 
 
 
