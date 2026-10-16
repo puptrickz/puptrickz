@@ -26,7 +26,9 @@
   ꒰ㅤ, ㅤ﹕ jimpete     ㅤㅤ      +      ㅤㅤ      smopkins     ㅤㅤ     enthusiast    ㅤ𓋫 ㅤ my     ㅤluuv    ㅤ/     ㅤveronica    ㅤ:     ㅤkatewoonㅤㅤ    ꒱
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31gp774jcfsss6rfosti47ts25na&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=784c85&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31gp774jcfsss6rfosti47ts25na&cover_image=true&theme=novatorem&show_offline=false&background_color=3e284d&interchange=false&profanity=false&hide_remaster=false&bar_color=b690d0&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 [rentry](https://rentry.co/machersguts) 　ㅤ﹕ ㅤ[atabook](https://puptrick.atabook.org/) 　ㅤ﹕ ㅤ[strawpage](https://animalcorpsrinmyfridge.straw.page/)
 
